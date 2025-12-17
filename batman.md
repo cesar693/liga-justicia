@@ -1,0 +1,3 @@
+## Batman
+
+La historia de Batman es la de Bruce Wayne, un niño rico que, tras presenciar el asesinato de sus padres en un callejón, dedica su vida a combatir el crimen en Ciudad Gótica, entrenándose física e intelectualmente para convertirse en un justiciero sin superpoderes, inspirándose en el miedo que le provocaban los murciélagos para crear su identidad como el "Caballero Oscuro". Creado por Bob Kane y Bill Finger en 1939, su origen se narra en Detective Comics #27, convirtiéndose en un ícono de la justicia y la resiliencia, operando desde la Mansión Wayne y la Baticueva, utilizando su fortuna y tecnología para luchar contra el ma
